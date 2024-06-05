@@ -1,2 +1,3 @@
 # NovoGcs
-lakmlakdsmf
+
+Relo uordi!!!
